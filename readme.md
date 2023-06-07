@@ -7,7 +7,7 @@ Participants:
 3. Sharon
 4. Lovepreet Singh
 5. Pavan
-6.
+6. Prem Pratap
 7.
 8.
 9.
