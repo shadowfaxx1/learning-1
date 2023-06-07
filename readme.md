@@ -2,12 +2,12 @@
 
 Participants:
 
-1. Prabhu Shankar M.C
-2. Poorv Kumar
-3. Sharon
-4. Lovepreet Singh
-5. Pavan
-6.Prashant
+1. Prashant
+2.
+3.
+4.
+5. 
+6.
 7.
 8.
 9.
